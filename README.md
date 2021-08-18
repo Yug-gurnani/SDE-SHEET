@@ -4,20 +4,3 @@ This Repositary contains all the question day wise from the sde sheet of STRIVER
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
